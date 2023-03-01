@@ -1,9 +1,10 @@
 # KASIL
 
-My 5 Dislike
-Lazy
-Arrogant
-Cheater
-Body Shamer
-Liar
+My likes
 Me
+Myself
+And
+I
+Sunny
+Trixy
+Lyra
