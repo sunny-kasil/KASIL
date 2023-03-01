@@ -1,1 +1,5 @@
 # KASIL
+
+Kasil
+Lofranco
+Nakila
